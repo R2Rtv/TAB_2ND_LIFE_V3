@@ -10,7 +10,7 @@ https://drive.google.com/file/d/1GQsp3m6JAteABt6I5y3U4fJyh2FRWGgD/view?usp=shari
 🎯 PLAYGROUND
 https://www.playground.ru/they_are_billions/file/they_are_billions_vtoraya_zhizn-1740408
 🎯 MODDB
-https://www.moddb.com/mods/they-are-billions-2nd-life
+https://www.moddb.com/mods/they-are-billions-2nd-life/downloads/tab2life-slm
 
 ===EN===
 Due to jealous manipulation by the authors of similar and less-than-successful mods, the mod's main files are hosted on mirror sites:
@@ -24,4 +24,4 @@ https://drive.google.com/file/d/1GQsp3m6JAteABt6I5y3U4fJyh2FRWGgD/view?usp=shari
 🎯 PLAYGROUND
 https://www.playground.ru/they_are_billions/file/they_are_billions_vtoraya_zhizn-1740408
 🎯 MODDB
-https://www.moddb.com/mods/they-are-billions-2nd-life/downloads/tab2life-slm-v3122
+https://www.moddb.com/mods/they-are-billions-2nd-life/downloads/tab2life-slm

@@ -8,7 +8,7 @@ https://www.twitch.tv/r2rtv
 🎯 DISCORD
 https://discord.gg/tKjtZUBVJe
 🎯 GOOGLE DRIVE
-https://drive.google.com/file/d/1lLzPMj-04JTPGh7dLi_sGJx26BiBse5I/view?usp=sharing
+https://drive.google.com/file/d/1iST0D2w_OvVVK1-ElLNiZ4KNfdG7krxd/view?usp=sharing
 🎯 PLAYGROUND
 https://www.playground.ru/they_are_billions/file/they_are_billions_vtoraya_zhizn-1740408
 🎯 MODDB
@@ -24,7 +24,7 @@ https://www.twitch.tv/r2rtv
 🎯 DISCORD
 https://discord.gg/tKjtZUBVJe
 🎯 GOOGLE DRIVE
-https://drive.google.com/file/d/1lLzPMj-04JTPGh7dLi_sGJx26BiBse5I/view?usp=sharing
+https://drive.google.com/file/d/1iST0D2w_OvVVK1-ElLNiZ4KNfdG7krxd/view?usp=sharing
 🎯 PLAYGROUND
 https://www.playground.ru/they_are_billions/file/they_are_billions_vtoraya_zhizn-1740408
 🎯 MODDB

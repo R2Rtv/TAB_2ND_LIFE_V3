@@ -10,7 +10,7 @@ https://discord.gg/tKjtZUBVJe
 🎯 GOOGLE DRIVE
 https://drive.google.com/file/d/1YsrmUBEa5yTPD0bjhyJqnkszezxegONN/view?usp=sharing
 🎯 PLAYGROUND
-https://www.playground.ru/post/1358755
+https://www.playground.ru/they_are_billions/file/they_are_billions_vtoraya_zhizn-1740408
 🎯 MODDB
 https://www.moddb.com/mods/they-are-billions-2nd-life/downloads/tab2life-slm
 
@@ -26,6 +26,6 @@ https://discord.gg/tKjtZUBVJe
 🎯 GOOGLE DRIVE
 https://drive.google.com/file/d/1YsrmUBEa5yTPD0bjhyJqnkszezxegONN/view?usp=sharing
 🎯 PLAYGROUND
-https://www.playground.ru/post/1358755
+https://www.playground.ru/they_are_billions/file/they_are_billions_vtoraya_zhizn-1740408
 🎯 MODDB
 https://www.moddb.com/mods/they-are-billions-2nd-life/downloads/tab2life-slm
